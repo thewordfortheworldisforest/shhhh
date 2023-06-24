@@ -1,3 +1,2 @@
 - [[About]]
-- [[Jun 16th, 2023]]: The Woman Who Got Really Interested In My Girlfriend and Shared Her Forays Into The Wild World of Pleasure Seeking, Introduced to by Her Husband.
--
+- [[Dating Apps Chronicles]]
